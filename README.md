@@ -1,5 +1,5 @@
 # Certifications
-Qualification Certificates 
+
 
 
 <img width="3168" height="2448" alt="V5 Certificate IT" src="https://github.com/user-attachments/assets/7fca6a60-7fa0-449b-98b0-49a1b6435064" />
