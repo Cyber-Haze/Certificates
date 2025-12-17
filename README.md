@@ -1,4 +1,4 @@
-# Certificates
+# Certifications
 Qualification Certificates 
 
 
